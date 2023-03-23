@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @DINESH5616
-- 👀 I’m interested in ...new things like programming languages.
+- 👋 Hi, I’m DINESH
+- - 👀 I’m interested in ...new things like programming languages.
 - 🌱 I’m currently pursuing ...B.E Electrical and Electronics Engineering.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...dineshwelcome43@gmail.com
